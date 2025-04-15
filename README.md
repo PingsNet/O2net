@@ -1,10 +1,10 @@
 # O2net
 خرید v2box , خرید v2rayng, خرید کانفیگ آیفون، خرید سرور v2ray  را از ما بخواهید
 جهت مشاوره و خرید از طریق تلگرام با ما در ارتباط باشید:  
-**[https://t.me/o2net_admin](https://t.me/o2net_admin)**
+**[تلگرام ما o2net_admin](https://t.me/o2net_admin)**
 
 یا از طریق چت آنلاین سایت سریع پیام بده:  
-**[https://goftino.com/c/YWA45p](https://goftino.com/c/YWA45p)**
+**[چت سایت ما](https://goftino.com/c/YWA45p)**
 
 ---
 
